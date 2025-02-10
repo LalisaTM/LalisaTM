@@ -4,7 +4,7 @@ Full time Environment Artist @ ScanlineVFX
 
 I make worlds that look good
 
-  
+Most of my projects are private so dont expect anything big.
   
 
 ## 🌐 Socials:
