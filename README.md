@@ -1,7 +1,7 @@
 # 💫 About Me:
 
 **Full-time Environment Artist @ ScanlineVFX**  
-**Head Staff of the community mod [HorizonMW](https://github.com/HorizonMW/HorizonMW-Client)**  
+**Project lead of the community mod [HorizonMW](https://github.com/HorizonMW/HorizonMW-Client)**  
 
 I create visually stunning worlds.  
 
